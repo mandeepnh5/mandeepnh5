@@ -1,5 +1,5 @@
 # 💫 About Me:
-🌟 I'm currently working on:<br>Studying at IITM, graduating in 2027. Passionate about competitive programming and AI. Aspiring to become an amazing web developer. Currently learning web development and will soon pursue AI.<br><br>🤝 I'm looking to collaborate on:<br>Web development projects, ML projects and competitive programming challenges.<br><br>🆘 I'm looking for help with:<br>Enhancing my skills in AI and advanced web development techniques.<br><br>🌱 I'm currently learning:<br>Web development and exploring AI.<br><br>💬 Ask me about:<br>Web development, competitive programming, ML and gaming.<br><br>🎬 Fun fact:<br>I'm a huge movie geek and love watching movies and shows. I used to be a semi-pro gamer and enjoy playing games like Minecraft.
+🌟 I'm currently working on:<br>Studying at IITM, graduating in 2028. Passionate about competitive programming and AI. Aspiring to become an amazing web developer. Currently learning web development and will soon pursue AI.<br><br>🤝 I'm looking to collaborate on:<br>Web development projects, ML projects and competitive programming challenges.<br><br>🆘 I'm looking for help with:<br>Enhancing my skills in AI and advanced web development techniques.<br><br>🌱 I'm currently learning:<br>Web development and exploring AI.<br>
 
 
 ## 🌐 Socials:
